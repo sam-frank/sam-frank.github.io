@@ -13,7 +13,7 @@ Once you have that information, you should start making connections with as many
 
 2. Advertising:
 
-Once you have a directory of all the professors in your university, you should start advertising to them. This can be done by sending emails, calling them on the phone, or going up to them and talking directly. This is a very effective strategy because it allows you to interact with the professors and make them remember you. Plus, if they like your product/service enough, they will likely give away some of their books for free!
+Once you have a directory of all the professors in your university, you should start advertising to them. This can be done by sending emails, calling them on the phone, or going up to them and talking directly. This is a very effective strategy because it allows you to interact with the professors and make them remember you.
 
 Now, here is how I use these two concepts to get my first year of books free:
 
