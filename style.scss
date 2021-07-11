@@ -17,11 +17,27 @@ html {
   font-size: 100%;
 }
 
+body:before {
+  content: "";
+  display: block;
+  position: fixed;
+  left: 0;
+  top: 0;
+  width: 100%;
+  height: 100%;
+  z-index: -10;
+  background: url(images/background.png) no-repeat center top;
+  -webkit-background-size: cover;
+  -moz-background-size: cover;
+  -o-background-size: cover;
+  background-size: cover;
+}
+
 body {
-  background: url(images/background.png) center top;
-  background-repeat: no-repeat;
-  background-size: auto;
-  background-attachment: fixed;
+  // background: url(images/background.png) center top;
+  // background-repeat: no-repeat;
+  // background-size: auto;
+  // background-attachment: fixed;
   font: 18px/1.4 $helvetica;
   color: $darkGray;
 }
