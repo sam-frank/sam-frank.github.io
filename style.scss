@@ -18,7 +18,9 @@ html {
 }
 
 body {
-	background: $white;
+  background: url(images/background.png);
+  background-repeat: no-repeat;
+  background-size: auto;
   font: 18px/1.4 $helvetica;
   color: $darkGray;
 }
