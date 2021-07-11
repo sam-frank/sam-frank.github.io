@@ -18,9 +18,10 @@ html {
 }
 
 body {
-  background: url(images/background.png) center center;
+  background: url(images/background.png) center top;
   background-repeat: no-repeat;
   background-size: auto;
+  background-attachment: fixed;
   font: 18px/1.4 $helvetica;
   color: $darkGray;
 }
