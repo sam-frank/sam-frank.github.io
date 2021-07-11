@@ -5,13 +5,13 @@ title: How to Get Free Books
 
 I got my first year of books free by using the following strategy. The strategy involves two concepts: networking and advertising.
 
-1. Networking:
+### 1. Networking:
 
 The first thing to do is to make sure you have a directory of the faculty members at your university. Most universities provide these directories on their website. If your university does not have an online directory, you can probably find one on Google by searching for “[YOUR_UNIVERSITY] Faculty Directory” or something similar. Just use the search bar in the upper left corner of this page to get started!
 
 Once you have that information, you should start making connections with as many professors as possible using Facebook and LinkedIn, which are free social network services. You should use social media because it allows you to network quickly and easily without having to spend much money (i.e., time). Some professors may be willing to give away some of their books for free just because they like your profile picture or status updates on Facebook — who knows? Just make good friends with them.
 
-2. Advertising:
+### 2. Advertising:
 
 Once you have a directory of all the professors in your university, you should start advertising to them. This can be done by sending emails, calling them on the phone, or going up to them and talking directly. This is a very effective strategy because it allows you to interact with the professors and make them remember you.
 
