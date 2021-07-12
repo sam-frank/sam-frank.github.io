@@ -3,6 +3,8 @@ layout: post
 title: How to Develop Social Skills
 ---
 
+To land internships and be successful like me, you need to have social skills. But how do you develop them? Read my advice to learn more!
+
 1. The very first thing you must do is make friends.
 
 If you want your social skills to develop, you must have friends. This is because it is difficult to practice socializing with strangers, but easy to practice socializing with friends. Friends are the best way to become socially skilled before an interview or networking event. Here are some tips on how to find friends:
