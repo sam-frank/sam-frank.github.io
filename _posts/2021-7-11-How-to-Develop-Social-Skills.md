@@ -7,6 +7,8 @@ To land internships and be successful like me, you need to have social skills. B
 
 ### 1. The very first thing you must do is make friends.
 
+![Image of friends](/images/how-to-develop-social-skills-friends.jpeg)
+
 If you want your social skills to develop, you must have friends. This is because it is difficult to practice socializing with strangers, but easy to practice socializing with friends. Friends are the best way to become socially skilled before an interview or networking event. Here are some tips on how to find friends:
 
 Go out of your way to meet new people. There will be plenty of opportunities at orientation and events so don't worry about being awkward in the beginning!
@@ -15,11 +17,15 @@ Go out of your way to make friends with people who seem like they would be inter
 
 ### 2. Practice your social skills before any interview/networking event through role-play.
 
+![Image of role play](/images/how-to-develop-social-skills-role-play.jpeg)
+
 If you want your social skills to develop, you must practice them! If you just constantly go out and try to make friends with people without trying at any role-play first, then you will be extremely awkward and uncomfortable when it comes time for the actual event. Here are some tips on how to practice your social skills before an interview or networking event:
 
 Role-play with a friend. Have your friend pretend that they are an interviewer and you pretend to be a candidate. If your friend is not comfortable doing this, then try role-playing on your own by pretending that you're the interviewer and interviewing yourself! This will help you figure out what to say in the event of an interview so that nothing comes off as awkward or inappropriate.
 
 ### 3. Practice socializing in front of a mirror until it feels natural or watch videos of others doing the same until it becomes comfortable for you too.
+
+![Image of mirror](/images/how-to-develop-social-skills-mirror.jpeg)
 
 If you want your social skills to develop further, then using a mirror will help you practice body language and facial expressions since there's no one else around but just yourself! If there's any discomfort with watching yourself in front of a mirror, then watch videos of people practicing social skills instead! It does not matter if you use a mirror or videos; what matters is that if feels natural after practicing it enough times. Here are some tips on how to practice your social skills in front of a mirror or watching videos of others:
 
@@ -30,6 +36,8 @@ Practice eye contact! Does it feel comfortable when you talk to someone and they
 Practice hand gestures! Try out different hand gestures that you think would work well for you and see which ones feel most comfortable for you. It is important to remember to keep your hands away from your face in any social situation as this is usually perceived as a sign of discomfort and nervousness.
 
 ### 4. Be confident in who you are and what you have accomplished!
+
+![Image of stocks up](/images/how-to-develop-social-skills-accomplishments.png)
 
 Don't be afraid to tell others about your accomplishments and have a healthy self-esteem! This is critical to developing your social skills because if you are not confident in yourself, then it will be hard for you to make friends with others. Here are some tips on how to be confident in who you are and what you have accomplished:
 
