@@ -21,7 +21,7 @@ This is good practice for being able to speak in public, and will help you with 
 
 ![Image of a stone](/images/how-to-make-the-most-of-reading-this-blog-stone.jpeg)
 
-If all goes well, hopefully you will be able to come back to this blog after 10 months and see how much more successful you are than you are now. Hopefully by applying the advice from my previous blog posts, you will be in an even better position than before. Remember to check back in on this blog once every week for more help!
+If all goes well, hopefully you will be able to come back to this blog after 6 months and see how much more successful you are than you are now. Hopefully by applying the advice from my previous blog posts, you will be in an even better position than before. Remember to check back in on this blog once every week for more help!
 
 ### 4. Take notes again!
 
