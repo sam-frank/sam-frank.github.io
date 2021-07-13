@@ -3,7 +3,7 @@ layout: post
 title: How to Make the Most of Reading This Blog
 ---
 
-In this post I will be giving advice for making the most out of reading my blog, targeted toward incoming college freshmen but applicable to all students!
+In this post I will be giving advice for making the most of reading my blog, targeted toward incoming college freshmen but applicable to all students!
 
 ### 1. Take notes
 
