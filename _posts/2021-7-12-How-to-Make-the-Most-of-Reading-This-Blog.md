@@ -67,6 +67,6 @@ If you have taken all of my advice up until this point, then you should be fully
 
 ### 12. Make sure that you do not forget to take notes again!
 
-![Image of taking notes 3](/images/how-to-make-the-most-of-reading-this-blog-notes3.jpeg)
+![Gif for "don't forget"](/images/how-to-make-the-most-of-reading-this-blog-dont-forget.gif)
 
 What would be the point of having this blog if no one took notes on what I wrote? You can never be too careful with note-taking, because I do not want you to forget the important life lessons that I have taught you!
