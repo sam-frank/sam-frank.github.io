@@ -11,7 +11,7 @@ In my opinion, the best way to get students is to ask your friends if they know 
 
 Another good place to look for students is on social media (Twitter, Facebook, etc). One good technique that can be used here is posting something like: “I am looking for awesome kids in [your city/state] for private tutoring” or something similar. You can also post something like: “I am a #1 ranked tutor in [your city/state] looking for new students”.
 
-Posting flyers (something creative like a flyer with a picture of Einstein on it saying “Want to be smarter? Call Sam”) at local book stores, libraries, etc. It helps if you can get the permission of these places before posting any flyers so that they do not get taken down immediately after being posted.
+Post flyers (something creative like a flyer with a picture of Einstein on it saying “Want to be smarter? Call Sam”) at local book stores, libraries, etc. It helps if you can get the permission of these places before posting any flyers so that they do not get taken down immediately after being posted.
 
 ![Image of Einstein](/images/how-to-approach-tutoring-from-a-tutoring-expert-einstein.jpeg)
 
