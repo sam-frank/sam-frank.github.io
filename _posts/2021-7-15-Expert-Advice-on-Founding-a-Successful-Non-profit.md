@@ -3,7 +3,7 @@ layout: post
 title: Expert Advice on Founding a Successful Non-profit
 ---
 
-Today I’m giving advice to incoming college freshmen on the topic of how to be a successful non-profit founder like me. I will talk about how to find a cause you believe in, how to get funding and volunteers, and how to make your non-profit successful.
+Today I’m giving you advice on the topic of how to be a successful non-profit founder like me. I will talk about how to find a cause you believe in, how to get funding and volunteers, and how to make your non-profit successful.
 
 You are here because you want to save the world, and I am here to help!
 
