@@ -17,6 +17,8 @@ Or maybe you are really passionate about animal rights. Maybe one day your dog g
 
 Or maybe you are passionate about baseball. Maybe you feel guilty because when you were younger, your parents put so much pressure on you to study hard that you didn’t spend enough time playing baseball. So you want to help under-privileged kids play more baseball.
 
+![Image of Baseball](/images/expert-advice-on-founding-a-successful-non-profit-baseball.jpeg)
+
 You can find a cause that matters to you, even if it is something as silly as saving cats from the evil forces of big dogs. The most important thing is that you believe in the cause and are willing to commit yourself 100% of your time and energy, which brings me to my next point:
 
 ### How To Get People To Volunteer Their Time For Free!
@@ -29,13 +31,19 @@ First, be confident. People will want to work with you if they feel like you kno
 
 Second, know how to get attention for yourself and your cause. When I was helping kids play baseball, I would write articles about them and publish them online so that more people would see them. Then other news sources would come across my posts and read about the story there, which led their readers to read about it as well… And before you knew it, I was getting interviewed by major newspapers like the LA Times! Now we were getting attention!
 
+![Image of Interview](/images/expert-advice-on-founding-a-successful-non-profit-interview.gif)
+
 For my non-profit, whenever we were planning an event, I would have students from top universities come out and help us run the event. This worked well because everyone wants their name in lights! When people know that their name will appear on our website as someone who helped us with an event, then they will often want to help out just so that their name can appear where it matters.
 
 You can also try to get people’s attention by doing something outrageous. For example, you could go out into the streets and start giving away free kittens to passersby. This might not be the best way to do it, but it would definitely attract a lot of attention for your non-profit!
 
+![Image of Cat](/images/expert-advice-on-founding-a-successful-non-profit-cat.jpeg)
+
 ### How to Get People to Give You Their Money for Free!
 
 Once you have already gotten people’s attention, what else do you need? You need money to help run your non-profit. But how can you get this money for free? It is simple: just ask for donations. The key to getting donations is being confident and aggressive with your requests. Here is how I did it:
+
+![Image of Money](/images/expert-advice-on-founding-a-successful-non-profit-money.jpeg)
 
 First, I built my non-profit’s website and wrote about how awesome my organization was. Then I published this website on Facebook groups related to Stanford students so that Stanford students would know about my organization. Then, to convince them to donate, I asked them if they wanted their name on our list of donors and if they preferred a kitten or a certificate as their thank you gift for their donation. I also emailed my friends and family members to ask them to donate. When a non-profit takes off, it will become quite easy to get money for the cause you believe in!
 
