@@ -21,7 +21,7 @@ You can easily come up with other topics that interest you and then just casuall
 
 ## Method 2 – First Date
 
-The best way to tell a woman that you are smart is during the first date. Wait until she asks about your GPA (your grade point average) which is probably going to happen because most girls these days are obsessed with grades. You simply tell her your GPA is around 4.0 or 4.5, add a factor of 0.5 to 1.0 standard deviation ([3 SD] for Mensa) so that she thinks you are a genius, and then say how much you LOVE Math and how good at it you are because your father forced you to take on advanced math courses in high school.
+The best way to tell a woman that you are smart is during the first date. Wait until she asks about your GPA (your grade point average) which is probably going to happen because most girls these days are obsessed with grades. You simply tell her your GPA is around 4.0 or 4.5, add a factor of 0.5 to 1.0 standard deviation so that she thinks you are a genius, and then say how much you LOVE Math and how good at it you are because your father forced you to take on advanced math courses in high school.
 
 ## Method 3 – Take her to a party with college students and drunk people
 
