@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Resume Advice from a Certified Genius
+title: Resume Advice from a Certified Genius!
 ---
 
 Last week I showed my friend's parents my resume and they were so impressed they wouldn't shut up about it! Today I will be giving advice on how to write a resume that will impress all of your friends' CEO parents when you are a genius (IQ 160+)!
