@@ -11,7 +11,7 @@ Last week I showed my friend's parents my resume and they were so impressed they
 
 2) Use big words that no one understands, such as "cerebral", and talk about how your cerebral capacity is bigger than everyone else's. CEOs are obsessed with genius kids who can make them feel stupid. It makes them feel special that you are sharing your genius with them.
 
-3) Parents are also impressed when you have a lot of money. Make sure to list your parents' income, your trust fund, your baseball cards, and anything else that makes you look rich. You want to come across as someone who can donate their way into Harvard.
+3) Parents are also impressed when you have a lot of money. Make sure to list your parents' income, your trust fund, your baseball cards, and anything else that makes you look rich. You want to come across as someone who can donate your way into Harvard.
 
 4) CEO parents love a challenge, so make sure your resume is hard to read. You can use a small font, or even better, hand-write your resume! This will make it more difficult for them to read, but they'll be so impressed with your intellect that they won't even care.
 
