@@ -3,7 +3,7 @@ layout: post
 title: How to Raise Money for Your Startup
 ---
 
-Some people read my other blog post and complained that they had selfish parents who aren't willing to invest $120k into their startup. So now I will be giving advice on how to raise money for your startup!
+Some people read [my other blog post](/How-to-Start-a-Company) and complained that they had selfish parents who aren't willing to invest $120k into their startup. So now I will be giving advice on how to raise money for your startup!
 
 In addition to the $120k I got from my parents, I also raised money in a genius way. I organized a "Charity Startup" event where people could come and play baseball, eat food, and donate to my cause. I raised over $5k from that one event! Here's how I organized it:
 
