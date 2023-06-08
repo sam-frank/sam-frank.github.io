@@ -5,8 +5,6 @@ title: How to Advertise Your Nonprofit to Unsuspecting College Students
 
 Today, I'm here to enlighten you with my genius advice on how to advertise your nonprofit to unsuspecting college students. Brace yourselves for a mind-blowing ride!
 
-As a high school sophomore at the prestigious Stanford University (Online High School), I have, of course, mastered the intricacies of nonprofit organization management, computer science, engineering, philanthropy, social media, and even baseball. It’s quite exhausting being a genius, but I manage.
-
 Now, let us delve into the fascinating world of luring college students to your noble cause.
 First things first, you need to understand that college students are a tricky bunch. They're constantly drowning in assignments, social media, and late-night pizza parties. So, how do you capture their attention? Simple!
 The key, my dear readers, is to approach this task with the same finesse I demonstrate when hitting home runs with my genius CEO friends on the baseball field. Just follow these steps!
